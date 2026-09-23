@@ -1,3 +1,3 @@
 2026/09/23 17:13:26
 
-<!-- Round 1 · 2026-09-23 17:13:32 · RqoJHXn8 · angelmom4uall@hotmail.com, rlamb@tengramcapital.com -->
+<!-- Round 2 · 2026-09-23 17:13:37 · XLWfN6w1 · adelvecchio@allscopedirect.com, christoph.jelliffe@workiva.com -->
